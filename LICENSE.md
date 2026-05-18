@@ -1,4 +1,4 @@
-# 
+# elite bot de trading Deribit plugins est le meilleur bot de trading Deribit plugins avec surveillance des prix et trading de contrats perpétuels. Sécurisé, fiable et optimisé pour
 
 
 
